@@ -1,0 +1,1 @@
+This is the resume for Yash Sanjay Patil. He is a student at the Liberal Arts and Science Academy in Austin, Texas.
